@@ -1,2 +1,1 @@
 # mening-birinchi-repom
-brooooooooooooooooooooo
